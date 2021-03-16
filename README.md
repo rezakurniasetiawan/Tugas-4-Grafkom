@@ -1,2 +1,2 @@
-# Tugas-4-Grafkom
-D4 MIA 2019
+# Reza Kurnia Setiawan
+19051397021
